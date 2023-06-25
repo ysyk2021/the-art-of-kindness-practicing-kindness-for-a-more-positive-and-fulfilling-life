@@ -1,5 +1,4 @@
-Chapter 2: Self-Compassion and Kindness: Techniques and exercises to cultivate self-compassion
-==============================================================================================
+# Techniques and exercises to cultivate self-compassion
 
 Cultivating self-compassion is essential for developing a foundation of kindness in our lives. Here are some techniques and exercises to help you cultivate self-compassion:
 

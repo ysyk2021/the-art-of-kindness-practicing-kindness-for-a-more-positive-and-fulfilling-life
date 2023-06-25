@@ -1,5 +1,4 @@
-Chapter 5: Kindness in the Workplace: Creating a Culture of Kindness at Work
-============================================================================
+# Creating a Culture of Kindness at Work
 
 Kindness is not only important in personal relationships, but also in the workplace. When we prioritize kindness in our professional interactions, it can lead to a more positive and productive work environment, foster greater teamwork and collaboration, and improve overall job satisfaction. In this chapter, we'll explore the role of kindness in the workplace and provide strategies for creating a culture of kindness at work.
 

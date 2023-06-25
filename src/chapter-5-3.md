@@ -1,5 +1,4 @@
-Chapter 4: Kindness in Relationships: Nurturing Friendships and Family Relationships through Kindness
-=====================================================================================================
+# Nurturing Friendships and Family Relationships through Kindness
 
 Kindness is essential for nurturing both friendships and family relationships. When we practice kindness towards our loved ones, it can strengthen our connections, increase our emotional well-being, and foster greater intimacy and trust. In this chapter, we'll explore the role of kindness in nurturing friendships and family relationships and provide strategies for cultivating kindness in these important relationships.
 

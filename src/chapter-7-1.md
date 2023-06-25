@@ -1,5 +1,4 @@
-Chapter 6: Kindness and Social Justice: The Intersection of Kindness and Social Justice
-=======================================================================================
+# The Intersection of Kindness and Social Justice
 
 Kindness is not only essential for personal and professional relationships, but it also has an important role to play in social justice. By practicing kindness towards marginalized communities and advocating for social change, we can create a more just and equitable society. In this chapter, we'll explore the intersection of kindness and social justice and provide strategies for using kindness as a tool for promoting social change.
 

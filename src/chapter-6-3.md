@@ -1,5 +1,4 @@
-Chapter 5: Kindness in the Workplace: Strategies for Practicing Kindness in Professional Settings
-=================================================================================================
+# Strategies for Practicing Kindness in Professional Settings
 
 Kindness is not only important in personal relationships, but also in the workplace. When we practice kindness towards our colleagues and clients, it can lead to a more positive and productive work environment, foster greater teamwork and collaboration, and improve overall job satisfaction. In this chapter, we'll explore the role of kindness in the workplace and provide strategies for practicing kindness in professional settings.
 

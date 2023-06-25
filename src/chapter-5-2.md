@@ -1,5 +1,4 @@
-Chapter 4: Kindness in Relationships: Communicating with Kindness
-=================================================================
+# Communicating with Kindness
 
 Communication is a critical component of healthy relationships, and kindness is essential for effective communication. When we communicate with kindness towards our loved ones, it can foster greater understanding, empathy, and trust. In this chapter, we'll explore the role of kindness in communication and provide strategies for communicating with kindness in your personal relationships.
 

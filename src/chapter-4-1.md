@@ -1,5 +1,4 @@
-Chapter 3: Practicing Kindness Towards Others: Simple Acts of Kindness That Can Make a Big Impact
-=================================================================================================
+# Simple Acts of Kindness That Can Make a Big Impact
 
 Practicing kindness towards others doesn't have to be complicated or time-consuming. In fact, even small acts of kindness can have a big impact on those around us. In this chapter, we'll explore some simple acts of kindness that you can incorporate into your daily life to make a positive difference in the world.
 

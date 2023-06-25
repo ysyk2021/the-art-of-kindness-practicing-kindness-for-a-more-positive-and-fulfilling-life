@@ -1,5 +1,4 @@
-Chapter 1: Understanding Kindness: Definition and benefits of kindness
-======================================================================
+# Definition and benefits of kindness
 
 Kindness is a behavior or action that involves the extension of compassion, generosity, or concern towards others. It can take many different forms, from acts of service to words of encouragement to gifts or physical touch. Here are some benefits of practicing kindness:
 

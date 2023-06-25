@@ -1,4 +1,4 @@
-Introduction: Importance of kindness for personal well-being and social connection
+Importance of kindness for personal well-being and social connection
 ==================================================================================
 
 Kindness is often thought of as a selfless act, something we do for others without expecting anything in return. However, practicing kindness can have profound benefits for our own personal well-being and social connection.

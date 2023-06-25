@@ -1,5 +1,4 @@
-Chapter 2: Self-Compassion and Kindness: Cultivating self-compassion as a foundation for kindness
-=================================================================================================
+# Cultivating self-compassion as a foundation for kindness
 
 Kindness begins with ourselves. If we are not kind to ourselves, it can be difficult to extend kindness to others. Cultivating self-compassion is essential for developing a foundation of kindness in our lives. Here are some strategies for cultivating self-compassion:
 

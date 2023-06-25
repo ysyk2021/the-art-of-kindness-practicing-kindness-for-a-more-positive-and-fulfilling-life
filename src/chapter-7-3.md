@@ -1,5 +1,4 @@
-Chapter 6: Kindness and Social Justice: Advocating for kindness on a larger scale
-=================================================================================
+# Advocating for kindness on a larger scale
 
 Kindness is not just about individual acts of compassion or generosity. It can also be a powerful force for social justice, promoting fairness, equality, and inclusion for all members of society. Here are some strategies for advocating for kindness on a larger scale:
 

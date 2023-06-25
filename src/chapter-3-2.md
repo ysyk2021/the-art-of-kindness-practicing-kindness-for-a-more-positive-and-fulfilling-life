@@ -1,5 +1,4 @@
-Chapter 2: Self-Compassion and Kindness: Benefits of self-compassion
-====================================================================
+# Benefits of self-compassion
 
 Self-compassion is an essential aspect of kindness, as it involves extending compassion and kindness to ourselves. When we cultivate self-compassion, we are better able to care for ourselves and extend kindness and compassion to others. Here are some benefits of self-compassion:
 

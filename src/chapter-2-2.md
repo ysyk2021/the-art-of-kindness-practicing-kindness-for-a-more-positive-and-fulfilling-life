@@ -1,5 +1,4 @@
-Chapter 1: Understanding Kindness: Types of kindness
-====================================================
+# Types of kindness
 
 Kindness is a broad term that encompasses a wide range of actions and behaviors. Here are some types of kindness:
 

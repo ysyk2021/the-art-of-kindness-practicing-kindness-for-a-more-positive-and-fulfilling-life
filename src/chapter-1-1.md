@@ -1,4 +1,4 @@
-Introduction: Overview of the book
+Overview of the book
 ==================================
 
 Kindness is a powerful force that can transform our lives and the world around us. From acts of service to words of encouragement, kindness can take many different forms, but its impact is always profound and long-lasting. In this book, we will explore the art of kindness and how practicing kindness can lead to a more positive and fulfilling life.

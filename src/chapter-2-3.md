@@ -1,5 +1,4 @@
-Chapter 1: Understanding Kindness: Relationship between kindness and happiness
-==============================================================================
+# Relationship between kindness and happiness
 
 Kindness is a powerful force that can bring joy, positivity, and fulfillment to our lives. When we extend kindness to others, we not only make their day better, but we also experience a sense of satisfaction and happiness ourselves. Here are some ways in which kindness and happiness are related:
 

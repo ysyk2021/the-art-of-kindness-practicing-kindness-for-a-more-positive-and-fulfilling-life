@@ -1,5 +1,4 @@
-Chapter 5: Kindness in the Workplace: Benefits of Kindness in the Workplace
-===========================================================================
+# Benefits of Kindness in the Workplace
 
 Kindness is not only important in personal relationships, but also in the workplace. When we prioritize kindness in our professional interactions, it can lead to a more positive and productive work environment, foster greater teamwork and collaboration, and improve overall job satisfaction. In this chapter, we'll explore the benefits of kindness in the workplace.
 

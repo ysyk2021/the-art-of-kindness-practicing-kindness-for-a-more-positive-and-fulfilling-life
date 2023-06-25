@@ -1,5 +1,4 @@
-Chapter 6: Kindness and Social Justice: Addressing systemic injustices with kindness
-====================================================================================
+# Addressing systemic injustices with kindness
 
 Kindness is not just about individual acts of compassion or generosity. It can also be a powerful force for social justice, promoting fairness, equality, and inclusion for all members of society. Here are some strategies for addressing systemic injustices with kindness:
 

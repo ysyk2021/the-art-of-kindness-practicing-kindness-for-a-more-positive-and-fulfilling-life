@@ -1,5 +1,4 @@
-Chapter 3: Practicing Kindness Towards Others: Overcoming Barriers to Practicing Kindness
-=========================================================================================
+# Overcoming Barriers to Practicing Kindness
 
 Practicing kindness towards others is a critical component of cultivating a more positive and fulfilling life. However, there are often barriers that prevent us from practicing kindness. In this chapter, we'll explore some common barriers to practicing kindness towards others and provide strategies for overcoming them.
 

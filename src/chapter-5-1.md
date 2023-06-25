@@ -1,5 +1,4 @@
-Chapter 4: Kindness in Relationships: The Role of Kindness in Healthy Relationships
-===================================================================================
+# The Role of Kindness in Healthy Relationships
 
 Kindness is a critical component of healthy relationships. When we practice kindness towards our loved ones, it can strengthen our connections, increase our emotional well-being, and foster greater intimacy and trust. In this chapter, we'll explore the role of kindness in healthy relationships and provide strategies for cultivating kindness in your personal relationships.
 
