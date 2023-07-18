@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 8: Conclusion
-=====================
-
 Kindness is a powerful force that can transform our lives and the world around us. In this book, we have explored the art of kindness, including its benefits, techniques for practicing kindness, and strategies for incorporating kindness into daily life.
 
 Reflection on the Art of Kindness
