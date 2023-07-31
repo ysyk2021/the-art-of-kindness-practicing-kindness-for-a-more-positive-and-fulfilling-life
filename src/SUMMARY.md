@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-  - [Overview of the book](chapter-1-1.md)
   - [Importance of kindness for personal well-being and social connection](chapter-1-2.md)
 - [Chapter 1: Understanding Kindness](chapter-2.md)
   - [Definition and benefits of kindness](chapter-2-1.md)
