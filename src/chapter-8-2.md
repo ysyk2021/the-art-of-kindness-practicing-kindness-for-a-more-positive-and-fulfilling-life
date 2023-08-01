@@ -54,5 +54,3 @@ Embrace Your True Self through Kindness
 ---------------------------------------
 
 By embracing vulnerability and authenticity through kindness, you can create a life filled with genuine connections, personal growth, and joy. Treat yourself with kindness, embrace your vulnerabilities, and celebrate the authenticity of others. Together, let us build a world where kindness and authenticity coexist, empowering individuals to live their best and most authentic lives.
-
-Thank you for reading "The Art of Kindness: Practicing Kindness for a More Positive and Fulfilling Life." We hope this book has inspired you to embrace kindness, vulnerability, and authenticity in all aspects of your life. Remember, every act of kindness, no matter how small, has the power to make a meaningful difference. Let kindness be your guiding light, and may it bring you joy, peace, and fulfillment.

@@ -55,5 +55,3 @@ Embracing Kindness Towards Yourself and Others
 As you cultivate self-compassion, remember that kindness towards oneself and kindness towards others are interconnected. When we are kind to ourselves, we have more energy and love to share with those around us.
 
 By nurturing self-compassion, you can lay the foundation for a life filled with kindness, positivity, and fulfillment. Embrace self-compassion as a lifelong practice, and watch as it transforms your relationship with yourself and others.
-
-Thank you for reading "The Art of Kindness: Practicing Kindness for a More Positive and Fulfilling Life." We hope this book has inspired you to embrace kindness in all aspects of your life. Remember, every act of kindness, no matter how small, has the power to make a meaningful difference. Let kindness be your guiding light, and may it bring you joy, peace, and fulfillment.

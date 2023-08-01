@@ -50,5 +50,3 @@ To use kindness as a tool for personal growth, consider the following strategies
 4. **Reflect on Kindness Experiences**: Regularly reflect on your experiences of extending kindness and the impact it has had on others and yourself. Journaling or engaging in introspection can help you gain valuable insights into your own personal growth and areas for improvement.
 
 By using kindness as a tool for personal growth, we unlock our potential for compassion, empathy, and self-improvement. As we cultivate kindness towards ourselves and others, we create a ripple effect that not only enhances our own lives but also positively influences the world around us. Let kindness guide your personal growth journey, and may it bring you closer to a more positive and fulfilling life.
-
-**Note**: This chapter is adapted from "The Art of Kindness: Practicing Kindness for a More Positive and Fulfilling Life" by Binjie09.
