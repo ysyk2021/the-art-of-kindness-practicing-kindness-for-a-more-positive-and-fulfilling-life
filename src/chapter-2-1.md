@@ -1,5 +1,3 @@
-Definition and Benefits of Kindness
-============================================
 
 In this chapter, we will explore the definition of kindness and delve into its numerous benefits. Understanding what kindness is and how it can positively impact our lives allows us to cultivate a more positive and fulfilling existence.
 

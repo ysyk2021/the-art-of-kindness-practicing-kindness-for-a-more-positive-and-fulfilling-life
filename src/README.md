@@ -1,4 +1,4 @@
-# Introduction
+
 
 In a world that can often feel harsh and unforgiving, practicing kindness has the power to transform both our own lives and the lives of those around us. "The Art of Kindness: Practicing Kindness for a More Positive and Fulfilling Life" is a guidebook for anyone seeking to cultivate more kindness in their daily life.
 

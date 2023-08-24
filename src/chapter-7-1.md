@@ -1,5 +1,3 @@
-The Intersection of Kindness and Social Justice
-==========================================================
 
 In our journey towards practicing kindness for a more positive and fulfilling life, it is essential to explore the profound connection between kindness and social justice. This chapter delves into the ways in which acts of kindness can contribute to creating a more just and equitable society. By understanding the intersection of kindness and social justice, we can become agents of change and advocates for a better world.
 

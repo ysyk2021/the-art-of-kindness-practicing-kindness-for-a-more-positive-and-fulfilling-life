@@ -1,5 +1,3 @@
-Communicating with Kindness
-======================================
 
 In our pursuit of practicing kindness for a more positive and fulfilling life, one area that deserves special attention is the way we communicate with others. The words we choose, the tone we use, and the empathy we bring to our conversations can greatly impact our relationships and the overall atmosphere in our personal and professional lives. By embracing communication with kindness, we can foster understanding, build stronger connections, and create a more harmonious world.
 

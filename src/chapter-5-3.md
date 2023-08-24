@@ -1,5 +1,3 @@
-Nurturing Friendships and Family Relationships through Kindness
-==========================================================================
 
 In our journey to cultivate a more positive and fulfilling life, nurturing our friendships and family relationships through kindness holds immense value. This chapter explores the transformative power of kindness in strengthening and deepening these connections. By practicing acts of kindness within our closest relationships, we can create a harmonious and supportive network that brings joy and fulfillment to all involved.
 

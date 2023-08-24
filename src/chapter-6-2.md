@@ -1,5 +1,3 @@
-Creating a Culture of Kindness at Work
-=================================================
 
 In today's fast-paced and competitive work environments, fostering a culture of kindness can have a profound impact on employee well-being, productivity, and overall organizational success. This chapter explores strategies and practices for creating a culture of kindness at work, where empathy, compassion, and respect thrive.
 

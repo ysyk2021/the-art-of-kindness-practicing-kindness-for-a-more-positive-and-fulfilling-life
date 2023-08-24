@@ -1,5 +1,3 @@
-Simple Acts of Kindness That Can Make a Big Impact
-=============================================================
 
 Kindness is a powerful force that can create positive ripples in our lives and the lives of others. This chapter explores simple yet impactful acts of kindness that can cultivate a more compassionate and fulfilling life.
 

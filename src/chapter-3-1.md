@@ -1,5 +1,3 @@
-Cultivating Self-Compassion as a Foundation for Kindness
-====================================================================
 
 In the pursuit of practicing kindness and creating a more positive and fulfilling life, cultivating self-compassion is essential. By extending kindness towards ourselves, we can develop a strong foundation of love, acceptance, and understanding. This chapter explores the importance of self-compassion and provides practical strategies to cultivate it.
 

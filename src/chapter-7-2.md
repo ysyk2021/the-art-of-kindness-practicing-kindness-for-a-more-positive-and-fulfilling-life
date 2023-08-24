@@ -1,5 +1,3 @@
-Addressing Systemic Injustices with Kindness
-=======================================================
 
 In our pursuit of practicing kindness for a more positive and fulfilling life, it is crucial to address systemic injustices with compassion, empathy, and understanding. Systemic injustices, such as discrimination, inequality, and prejudice, can create significant barriers for individuals and communities, hindering their well-being and opportunities for growth. By embracing the principles of kindness, we can work towards dismantling these injustices and creating a fairer and more equitable world.
 

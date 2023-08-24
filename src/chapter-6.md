@@ -1,5 +1,3 @@
-Chapter 5: Kindness in the Workplace
-====================================
 
 Kindness is not just important in our personal lives; it's also critical for creating a positive and productive workplace. In this chapter, we'll explore the benefits of kindness in the workplace, how to create a culture of kindness at work, and strategies for practicing kindness in professional settings.
 

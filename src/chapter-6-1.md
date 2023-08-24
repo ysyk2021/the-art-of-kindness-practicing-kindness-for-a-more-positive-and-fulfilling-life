@@ -1,5 +1,3 @@
-Benefits of Kindness in the Workplace
-==============================================
 
 In this chapter, we will explore the numerous benefits of kindness in the workplace. Kindness goes beyond simple gestures of goodwill---it has the power to create a positive and fulfilling work environment for individuals and teams. Let's delve into the ways kindness can transform the workplace and enhance overall well-being.
 

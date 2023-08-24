@@ -1,5 +1,3 @@
-Importance of Kindness for Personal Well-being and Social Connection
-=============================================================================
 
 In this chapter, we will explore the significance of kindness in promoting personal well-being and fostering meaningful social connections. Practicing kindness goes beyond mere gestures; it has a profound impact on our own happiness, fulfillment, and sense of belonging.
 

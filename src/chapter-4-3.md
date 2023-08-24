@@ -1,5 +1,3 @@
-Overcoming Barriers to Practicing Kindness
-======================================================
 
 Kindness is a powerful force that can bring about positive change in our lives and the lives of others. However, there are barriers that can hinder our ability to practice kindness consistently. This chapter explores common barriers to practicing kindness and offers strategies for overcoming them, enabling us to cultivate a more compassionate and fulfilling life.
 

@@ -1,5 +1,3 @@
-Using Kindness as a Tool for Personal Growth
-=======================================================
 
 In our journey towards personal growth and self-improvement, kindness can serve as a powerful tool. This chapter explores how practicing kindness not only benefits others but also contributes to our own personal development. By embracing kindness as a means of growth, we can create a more positive and fulfilling life.
 

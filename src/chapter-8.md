@@ -1,5 +1,3 @@
-Chapter 7: Kindness and Personal Growth
-=======================================
 
 Kindness is not just a way to improve the lives of others; it can also be a powerful tool for personal growth. In this chapter, we'll explore how practicing kindness can help us grow as individuals, become more vulnerable and authentic, and find greater meaning and purpose in our lives.
 

@@ -1,5 +1,3 @@
-The Role of Kindness in Healthy Relationships
-========================================================
 
 Kindness is not only a virtue that benefits individuals, but it also plays a crucial role in fostering healthy and fulfilling relationships. When kindness becomes the foundation of our interactions with others, it creates a positive and nurturing environment that strengthens bonds, enhances communication, and cultivates love and compassion.
 

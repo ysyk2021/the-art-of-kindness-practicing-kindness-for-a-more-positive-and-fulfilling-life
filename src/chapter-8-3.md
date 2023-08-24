@@ -1,5 +1,3 @@
-Finding Meaning and Purpose in Acts of Kindness
-===========================================================
 
 In our fast-paced and often self-centered world, finding meaning and purpose can be a challenging task. However, acts of kindness have the power to infuse our lives with profound significance and bring us closer to a more fulfilling existence. This chapter explores how acts of kindness can help us discover meaning and purpose in our lives.
 

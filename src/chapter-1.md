@@ -1,5 +1,3 @@
-Introduction
-============
 
 Kindness is a simple yet powerful concept that has the potential to transform our lives and the world around us. It's something we can all practice, regardless of our age, background, or circumstances. In this book, we'll explore the art of kindness: what it is, why it matters, and how we can cultivate it in our daily lives.
 
@@ -27,5 +25,4 @@ Conclusion
 ----------
 
 In this book, we'll explore the art of kindness: what it is, why it matters, and how we can cultivate it in our daily lives. Remember that kindness is something we can all practice, regardless of our age, background, or circumstances. By prioritizing kindness in our lives, we can improve our own well-being and create a more compassionate and caring world.
-
 

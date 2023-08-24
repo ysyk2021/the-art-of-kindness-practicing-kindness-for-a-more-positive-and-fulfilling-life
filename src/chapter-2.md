@@ -1,5 +1,3 @@
-Chapter 1: Understanding Kindness
-=================================
 
 Kindness is a fundamental aspect of human nature, yet it's often overlooked or undervalued in today's world. In this chapter, we'll explore the definition and benefits of kindness, the different types of kindness, and the relationship between kindness and happiness.
 

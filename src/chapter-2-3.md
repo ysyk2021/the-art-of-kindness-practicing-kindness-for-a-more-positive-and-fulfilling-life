@@ -1,5 +1,3 @@
-The Relationship Between Kindness and Happiness
-========================================================
 
 Kindness and happiness are intertwined in a beautiful and reciprocal relationship. In this chapter, we will explore how practicing kindness can contribute to our overall happiness and well-being. Understanding the connection between kindness and happiness allows us to cultivate a more joyful and fulfilling life.
 

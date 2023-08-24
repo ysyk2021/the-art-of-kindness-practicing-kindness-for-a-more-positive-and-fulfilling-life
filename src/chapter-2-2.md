@@ -1,5 +1,3 @@
-Types of Kindness
-==========================
 
 In this chapter, we will explore various types of kindness that can be practiced to bring about positive and fulfilling experiences in our lives. Kindness comes in many forms, and understanding these different types allows us to cultivate a more compassionate and empathetic approach towards others.
 

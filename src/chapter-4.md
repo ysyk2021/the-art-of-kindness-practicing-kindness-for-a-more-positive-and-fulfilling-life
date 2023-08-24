@@ -1,5 +1,3 @@
-Chapter 3: Practicing Kindness Towards Others
-=============================================
 
 Practicing kindness towards others is a powerful way to make a positive impact in the world. In this chapter, we'll explore simple acts of kindness that can make a big impact, strategies for incorporating kindness into daily life, and how to overcome barriers to practicing kindness.
 

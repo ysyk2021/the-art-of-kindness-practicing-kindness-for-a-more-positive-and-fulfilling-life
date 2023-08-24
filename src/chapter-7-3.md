@@ -1,5 +1,3 @@
-Advocating for Kindness on a Larger Scale
-====================================================
 
 In our journey to practice kindness for a more positive and fulfilling life, it is vital to extend our efforts beyond individual acts of kindness. Advocating for kindness on a larger scale allows us to create systemic change and foster a society that values compassion, empathy, and mutual respect. By promoting kindness in our communities, workplaces, and institutions, we can inspire others to join us in making the world a better place.
 

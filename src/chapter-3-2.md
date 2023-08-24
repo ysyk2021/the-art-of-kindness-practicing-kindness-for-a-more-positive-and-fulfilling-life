@@ -1,5 +1,3 @@
-Benefits of Self-Compassion
-====================================
 
 In this chapter, we will explore the numerous benefits that cultivating self-compassion brings to our lives. Self-compassion involves treating ourselves with kindness, understanding, and acceptance, especially during times of difficulty or when facing personal shortcomings. By embracing self-compassion, we can experience a more positive and fulfilling life.
 

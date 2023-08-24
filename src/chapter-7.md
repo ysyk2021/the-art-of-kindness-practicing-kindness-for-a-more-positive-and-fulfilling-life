@@ -1,5 +1,3 @@
-Chapter 6: Kindness and Social Justice
-======================================
 
 Kindness is not just about individual acts of compassion and empathy; it's also about creating a more just and equitable world for all. In this chapter, we'll explore the intersection of kindness and social justice, how to address systemic injustices with kindness, and how to advocate for kindness on a larger scale.
 

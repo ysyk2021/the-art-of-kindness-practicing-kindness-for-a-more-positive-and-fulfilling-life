@@ -1,5 +1,3 @@
-Chapter 2: Self-Compassion and Kindness
-=======================================
 
 Self-compassion is a critical component of practicing kindness towards ourselves and others. In this chapter, we'll explore how to cultivate self-compassion as a foundation for kindness, the benefits of self-compassion, and techniques and exercises to cultivate self-compassion.
 

@@ -1,5 +1,3 @@
-Chapter 4: Kindness in Relationships
-====================================
 
 Kindness is a key ingredient for healthy and fulfilling relationships. In this chapter, we'll explore the role of kindness in relationships, including how to communicate with kindness and nurture friendships and family relationships through acts of kindness.
 
